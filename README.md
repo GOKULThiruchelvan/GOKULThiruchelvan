@@ -8,7 +8,7 @@ I'm **Gokul Thiruchelvan**, a passionate **[Your Title or Profession]**, special
 - 🔭 I’m currently working on **[Your Current Project or Role]**
 - 🌱 I’m learning **[Skills or Technologies]**
 - 💬 Ask me about **[Topics of Expertise]**
-- 📫 How to reach me: **[Your Email or Professional Profile Link]**
+- 📫 How to reach me: **[gokult.22aid@kongu.edu]**
 
 ---
 
